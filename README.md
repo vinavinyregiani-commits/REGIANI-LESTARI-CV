@@ -1,0 +1,2 @@
+# REGIANI-LESTARI-CV
+tugas cv
